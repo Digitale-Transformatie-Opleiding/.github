@@ -1,1 +1,1 @@
-# Digital Transformatie Opleiding
+# Welkom bij de Digitale Transformatie Opleiding
